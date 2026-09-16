@@ -1,1 +1,7 @@
-<img width="2500" height="2500" alt="pngtree-very-sad-crying-emoji-png-image_15740467" src="https://github.com/user-attachments/assets/28e1c06f-fd5f-45bd-b747-2198d3024887" />
+<div align="center">
+hi !! this is just a repository where we will put our art …
+
+
+<div align="right">
+
+<img width="450" height="650" alt="Untitled174_20260917015458" src="https://github.com/user-attachments/assets/9b34f0f4-42a4-46aa-bc1f-4f5a9146d5e0" />
